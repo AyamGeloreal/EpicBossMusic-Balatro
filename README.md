@@ -1,5 +1,5 @@
 # EpicBossMusic-Balatro 
-![](https://tenor.com/6P54.gif)
+![](https://tenor.com/b0ZzM.gif)
 
 
 Hallo guys!
